@@ -1,1 +1,0 @@
-# nearwallet.github.io
